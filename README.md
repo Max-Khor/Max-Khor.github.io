@@ -1,3 +1,3 @@
-# Max Khor fqefqf
+# Max Khor
 
 Hi!
